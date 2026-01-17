@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Web Developer Junior
+I'm Muhamad Parhan Abdillah
 
 
 ## 🌐 Socials:
